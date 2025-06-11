@@ -1,5 +1,5 @@
 
-![image](https://notes.sjtu.edu.cn/uploads/upload_40bccfffacc8ac378a5f6403a5e83a6d.jpg)
+![image](https://notes.sjtu.edu.cn/uploads/upload_299a9cc5b995f271983025e08325b8e3.png)
 <!---
 Making garbage in 10000 hours
 
